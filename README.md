@@ -1,3 +1,3 @@
 # agndiadia
-Link para www.agendadiadiadosnoivos.com.br
+Link para www.agendadiaadiadosnoivos.com.br
 
